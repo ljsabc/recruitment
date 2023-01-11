@@ -45,7 +45,8 @@
 + 参与过研究项目，能在一定程度上自行设计实验
 + 有较好GPA，或任何的竞赛或论文成绩
 
-本职位需要申请[香港工作签证](https://www.immd.gov.hk/hkt/services/visas/ASMTP.html)并在香港**全职工作**，每周约40小时工作时间。工资范围在HKD18,000至22,000左右。
+本职位需要申请[香港工作签证](https://www.immd.gov.hk/hkt/services/visas/ASMTP.html)并在香港**全职工作**。
+全职工作每周约40小时工作时间。工资范围在HKD18,000至22,000左右，会逐年累进。
 
 
 
